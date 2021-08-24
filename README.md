@@ -1,4 +1,4 @@
-## Hello there! 👋✨
+## Hello there!  I'm Betiza Penques 👋✨
 
  <div>
   <a href="https://github.com/bepenques">
